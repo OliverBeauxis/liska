@@ -7,3 +7,5 @@ Po dlouhém a vyčerpávajícím boji Foxy nakonec zvítězila. Poslední žába
 Foxy se stala legendou, hrdinkou, která dokázala porazit temnotu a přinést světlo zpět do lesa. A od té doby, když se večer snese temnota, zaznívá pověst o Foxii, lišce, která zabíjí žáby a sbírá coiny, a všechny děti s úsměvem vědí, že ve tmě nejsou nikdy samy.
 
 Vypracovali : Beauxis, Truhlář
+
+https://youtu.be/1lBkWr0TFhw?si=XTSUVTnK4I9WWHNc
