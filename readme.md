@@ -8,4 +8,5 @@ Foxy se stala legendou, hrdinkou, která dokázala porazit temnotu a přinést s
 
 Vypracovali : Beauxis, Truhlář
 
-https://youtu.be/1lBkWr0TFhw?si=XTSUVTnK4I9WWHNc
+Web: http://liskarysava.kvalitne.cz/
+Demonstrace: https://youtu.be/1lBkWr0TFhw?si=XTSUVTnK4I9WWHNc
